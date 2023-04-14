@@ -1,1 +1,0 @@
-# COAST_MAP
